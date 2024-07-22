@@ -1,1 +1,0 @@
-# TNEI-IND coffee shop
